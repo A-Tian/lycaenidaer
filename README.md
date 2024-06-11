@@ -10,7 +10,7 @@
 - [fish in the pool](https://youtu.be/ge-OARWV9sE?si=sEI_f5wZTefohl8c)
 - [Yu Yu Hakusho *Romantic Theme*](https://youtu.be/k8aAJ4_tSi8?si=Ujlp5pMOZH7i2dfk)
 
- " 𝐚𝐧𝐠𝐞𝐥𝐢𝐜 " (ᴍʏ ꜰᴀᴠ ꜰᴏʀ ᴀɴ ᴏᴄs sᴛᴏʀʏ)
+ " 𝐚𝐧𝐠𝐞𝐥𝐢𝐜 " 
  - [インフレイション II looped](https://youtu.be/ZIRNfRvIwE4?si=_IpcJq1pnpDOTh_r)
  - [Ethereal](https://youtu.be/sYvqEh0Wdec?si=8fvHymiVLDjq8QiR)
  - [The Greatest Living Show](https://youtu.be/qFow8LkHtlU?si=UXPNuvaAineH4TlY)
