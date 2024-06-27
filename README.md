@@ -12,7 +12,7 @@
 
 *「✓」- 𝐂+𝐇 ‹𝟹*
 
- ### *💋 𝐌𝐘 𝐅𝐀𝐌𝐈𝐋𝐘 !! @columbinael (ma chérie)  @babybyme (son 1)  @Louis-Evangelo (son 2)* 
+ ### *💋*
 
 ![tumblr_38e35e0c7a5816a0bd0a77a1d9049b5e_7a3d6032_2048](https://github.com/lycaenidaer/lycaenidaer/assets/156435861/308a24e7-5570-43f5-9a31-3a29f748daad)
 
