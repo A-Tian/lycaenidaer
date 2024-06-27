@@ -20,5 +20,5 @@
 
 
 
-![tumblr_fe6343c678c1378580ee982be61e6cb7_47b0fdb7_2048](https://github.com/lycaenidaer/lycaenidaer/assets/156435861/47e8c301-b183-4d4f-81e4-6078f409834c)
+![tumblr_70621bd77ead082b664484ce008a1a46_d6347dd2_2048](https://github.com/lycaenidaer/lycaenidaer/assets/156435861/57958dae-ad38-422c-a62b-12f2139edb0f)
                      
